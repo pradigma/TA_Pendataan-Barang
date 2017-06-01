@@ -2,7 +2,7 @@
 
 
 
-![1](https://cloud.githubusercontent.com/assets/22220416/26385712/d16676b2-406b-11e7-9083-21e38e9a226c.PNG)
+![1]https://ibb.co/jiCfyF
 
 ![2](https://cloud.githubusercontent.com/assets/22220416/26385721/d32ae686-406b-11e7-9513-341283c92406.PNG)
 
