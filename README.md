@@ -2,7 +2,7 @@
 
 
 
-![1]https://ibb.co/jiCfyF
+![1][![Capture.png](https://s16.postimg.org/nvmsj3yhx/Capture.png)](https://postimg.org/image/7kmomsm01/)
 
 ![2](https://cloud.githubusercontent.com/assets/22220416/26385721/d32ae686-406b-11e7-9513-341283c92406.PNG)
 
